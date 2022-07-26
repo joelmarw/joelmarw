@@ -1,0 +1,11 @@
+- 👋  ola sou @joelmarw
+- 👀 eu me interreço em mecanica 
+- 🌱  estudo  em marmeleiro 
+- 💞️  estudo na   escola estadual de marmeleiro 
+- 📫  jogo  jogos de tiro porque me enteresa 
+- estou apredendo  a fazer jogo de robotica 
+- estou aprendendo robotica para fazer jogos com o professor nivaldo 
+ - para me encontra pessoalmente e so vir no estadual de marmeleiro 
+ - para falar com eu e so acessar @joelmarwagner.com 
+ - 
+--->
